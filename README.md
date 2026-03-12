@@ -1,2 +1,0 @@
-# ar-assets
-TImeless Characters
